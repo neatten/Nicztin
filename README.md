@@ -1,5 +1,5 @@
 # Nicztin | Do everything better
-[NE ATTEN](https://www.patreon.com/neatten)
+[NE ATTEN](https://www.patreon.com/Nicztin)
 # Nicztin – Personal Website
 
 <br/>
