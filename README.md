@@ -25,7 +25,7 @@ This website is a space where I bring both worlds together:
 I’m currently an online entrepreneur — I sell watches, clothing, and various perfumes.  
 Explore my work: [lnk.bio/neatten](https://lnk.bio/neatten)
 
-In my free time, I compose music — not professionally, but from the heart. You can listen to some of it on my [YouTube channel](https://youtube.com/@nicztin1738).
+In my free time, I compose music — not professionally, but from the heart. You can listen to some of it on my [YouTube channel](https://youtube.com/@nicztinmusic).
 
 This website was created to share what I love and what I’ve learned.  
 Even though music holds more emotional power for me, I believe **technology is the true language of knowledge**, and that’s why I build free platforms — to help people fall in love with both.
